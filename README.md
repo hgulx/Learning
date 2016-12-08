@@ -1,3 +1,4 @@
 # Learning
-No cribe
+No ce
 I wanna know !
+Changing 
